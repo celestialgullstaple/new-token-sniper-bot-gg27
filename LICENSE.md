@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with new new token sniper bot | private-RPC-nodes + auto-buy. Featuring private-RPC-nodes and auto-buy, it's the best choice for automated
 
 
 
